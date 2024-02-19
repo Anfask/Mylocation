@@ -1,7 +1,7 @@
 
 Hello friends ....
 
-Kochi is my location
+"Auckland" is my location
 
 
 
